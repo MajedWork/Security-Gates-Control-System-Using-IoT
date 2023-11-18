@@ -1,1 +1,1 @@
-# Security-Gates-Control-System-Using-IoT
+I have removed or anonymized personal information to protect privacy.
